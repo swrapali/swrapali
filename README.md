@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @swrapali
+- 👋 Hi, I’m Anri.
 - 👀 I’m interested in project management.
 - 🌱 I’m currently learning French language.
 - 💞️ I’m looking to collaborate on ...
